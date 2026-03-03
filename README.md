@@ -1,0 +1,79 @@
+# Kaelix Debonair【NIJISANJI EN】 – home / Kaelix Debonair (Original Song)‌
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+“Happy ever after” without laughter
+Never mattered or changed a thing
+As long as you believe it you know you’ll see
+it
+You can build a radiant dream
+“I gotta run, run, run away”
+Barely even made it out of the frame
+Had nothing to say
+And not a care in the world to speak of
+Thought I’d never see the day
+But I found a way
+Nothin’ ventured, nothin’ to gain, I’m
+Holdin’ out until tomorrow, I’m winnin’ the
+game
+But then the world comes crashing down
+The morning sky is falling to the ground
+You live and learn, but you wonder how
+You’d ever hope to see another round
+I know it’s hard, but in these times
+I swear you’ve gotta take a moment, once in a
+while
+Leave your worry behind, and I’ll tell you why:
+“Happy ever after” without laughter
+Never mattered or changed a thing
+As long as you believe it you know you’ll see
+it
+You can build a radiant dream
+And whether you know just where to go
+I’ll prove it, you can find your place
+So go with the flow, and make it a show
+I know that I’ll never be alone
+Smilin’, ‘cuz I finally found a star to follow
+me home
+You don’t wanna run, run out of time
+Carbon-copy life, comes a dozen a dime
+But we’re gonna fly
+You’d better aim for a higher target
+Just take my hand, we’re heading for the sky
+Take a look, you’ll find
+That there’s a light to conquer the darkest
+night
+You gotta fight ‘til tomorrow, but I’ll be
+your guide
+In any role, in any cast
+The script may lead to a faded past
+But in your soul, and in your path
+I know there’s hope, and it’s made to last
+In times of pain, if you’re in doubt
+There’s still a rainbow to lean on, just look
+around
+Fate is waiting inside to rise in a shout
+Let it out
+When your beating heart’s a wreck
+It’s so easy to forget
+It’s not over yet
+Another day awaits
+And it’s calling us
+Try it again, we haven’t seen the end
+When your silver lining isn’t shining
+And your life’s gone and fallen apart
+When all is said and done and the game is over
+That’s when you return the start
+So open your heart
+To brighter and warmer days, the world will wait
+And nothing stays the same
+So go with the flow, and make it a show
+I know that I’ll never be alone
+Ever room to grow
+Pressured, but I know
+That nothing can stop my
+Charge into the cold
+Smilin’, ‘cuz I’ve finally found a star to
+follow me home
+```
